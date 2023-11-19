@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Gunsnfnr.github.io/rsschool-cv/cv
