@@ -1,1 +1,1 @@
-https://Gunsnfnr.github.io/rsschool-cv/cv
+https://Gunsnfnr.github.io/rsschool-cv/
